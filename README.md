@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ... I am almost cried on blockchain for impact summit panel
 -->
 June 4, 2018: 
-I received a call from an organization at the last minute to represent the company because nobody wanted to go on stage at the conference.   Long story short, I ended up committing $50 million dollars  to the SDG Goals to fight sex trafficking, modern slavery and poverty.
+I received a call at the last minute to represent a company because nobody wanted to go on stage at the conference.   Long story short, I ended up committing $50 million dollars  to the SDG Goals to fight sex trafficking, modern slavery and poverty.
 June 8, 2018: 
 Introduce to Katie by Stuart and her program www.thebrp.org.  I gave it 150% for a year and failed.  I am sorry Katie & Stuart.
 July 24, 2018 
